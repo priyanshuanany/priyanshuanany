@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **ananypriyanshu@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1Sqz3FRvV1cSAPnNmMr6CVPZ9WD-qHff1/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1M--pexYsnSDVy96oxQZ4Rla8y-ysNihC/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
